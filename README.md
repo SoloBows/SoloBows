@@ -5,6 +5,7 @@
 🔹 IT Service Management (ITSM), Jira Administration, and Workflow Optimization  
 🔹 Project Management & Technical Operations  
 🔹 Automation & System Integrations
+
 🔹 Travelling ✈️
 
 ### **🌱 Currently Learning**  
