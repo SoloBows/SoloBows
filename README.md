@@ -6,7 +6,6 @@
 🔹 Project Management & Technical Operations  
 🔹 Automation & System Integrations
 
-🔹 Travelling ✈️
 
 ### **🌱 Currently Learning**  
 📌 ITIL & Jira Service Management Best Practices  
