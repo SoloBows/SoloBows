@@ -19,7 +19,7 @@
 📂 **Portfolio**: [www.soloungebowen.com](https://www.soloungebowen.com)  
 📂 **Travel Agency**: [www.soloboconsults.com](https://www.soloboconsults.com)  
 📂 **GitHub**: [github.com/SoloBows](https://github.com/SoloBows)  
-🔗 **LinkedIn**: [linkedin.com/in/solounge-bowen-projectmanager](www.linkedin.com/in/solounge-bowen-projectmanager)  
+🔗 **LinkedIn**: [www.linkedin.com/in/solounge-bowen-projectmanager](https://www.linkedin.com/in/solounge-bowen-projectmanager)  
 
 ### **😄 Fun Facts**  
 🎤 **I’ve recorded professional voiceovers** for phone systems!  
