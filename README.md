@@ -22,7 +22,7 @@
 🔗 **LinkedIn**: [www.linkedin.com/in/solounge-bowen-projectmanager](https://www.linkedin.com/in/solounge-bowen-projectmanager)  
 
 ### **😄 Fun Facts**  
-🎤 **I’ve recorded professional voiceovers** for phone systems!  
+🎤 **I’ve recorded professional voiceovers** for phone systems and audiobooks!  
 ✈️ **I run a travel agency!** As the owner of [SoloBo Consults](https://www.soloboconsults.com), I love helping people plan unforgettable trips.  
 🛠️ **I enjoy troubleshooting and finding creative solutions to tech challenges.**  
 
